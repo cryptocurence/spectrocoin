@@ -1,0 +1,2 @@
+# spectrocoin
+Bitcoin &amp; DASH &amp;ETH  Debit Card http://bit.ly/2fuC1uu Pay with bitcoins wherever you want. SpectroCoin bitcoin debit card is accepted everywhere where MasterCard or VISA is accepted. That includes automated teller machines (ATMs) for cash withdrawal, online sites, and physical shops. Bitcoin debit card can also be linked to PayPal or any other online wallet.   http://bit.ly/2fuC1uu
